@@ -5,3 +5,9 @@ https://github.com/ChelovekNeWerea25/Blender/assets/133495573/7f6c7e23-abe7-4c40
 
 
 [Скачать](https://cheloveknewerea25.github.io/Blender/0001-0150.blend)
+
+Артефакт
+
+https://github.com/ChelovekNeWerea25/Blender/assets/133495573/00705a26-63aa-49ea-aeea-495fd2763223
+
+[Скачать](https://cheloveknewerea25.github.io/Blender/аааed.blend)
